@@ -10,3 +10,6 @@ Meu nome é Daniel da Silva Gonçalves
 ### Voce pode entrar em contato comigo 📫
 
 silva.goncalves.daniel@escola.pr.gov.br 
+
+
+![](https://media.tenor.com/uYdk7PWj1k8AAAAC/c%C3%A1ssio-c%C3%A1ssio-ramos.gif)
